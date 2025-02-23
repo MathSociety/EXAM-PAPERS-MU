@@ -20,3 +20,5 @@ Your contributions help make this repository better for everyone:
 By contributing, you support a growing platform that benefits the entire student community by making academic resources more accessible.  
 
 Thank you for being a part of this initiative!  
+
+Wants to thank us: Follow us on Instagram https://www.instagram.com/mathsoc.mu/
